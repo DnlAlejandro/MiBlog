@@ -17,4 +17,4 @@ Static responsive blog themed to read about different posts<br>
 <a href="https://ibb.co/TvFLLjH"><img src="https://i.ibb.co/YRqZZnt/Dnlalejandro-Generic-Laptop-2022-7-26-at-10-49-14-P-M.jpg" alt="Dnlalejandro-Generic-Laptop-2022-7-26-at-10-49-14-P-M" border="0"></a>
 <a href="https://ibb.co/zSvgvc9"><img src="https://i.ibb.co/wKmqmHG/Dnlalejandro-Generic-Laptop-2022-7-26-at-10-49-48-P-M.jpg" alt="Dnlalejandro-Generic-Laptop-2022-7-26-at-10-49-48-P-M" border="0"></a>
 <a href="https://ibb.co/8rVtb4y"><img src="https://i.ibb.co/D9nTYgB/Dnlalejandro-Generic-Laptop-2022-7-26-at-10-49-59-P-M.jpg" alt="Dnlalejandro-Generic-Laptop-2022-7-26-at-10-49-59-P-M" border="0"></a>
-<a href="https://ibb.co/FbdZx4n"><img src="https://i.ibb.co/zht9nVN/Dnlalejandro-Generic-Laptop-2022-7-26-at-10-50-20-P-M.jpg" alt="Dnlalejandro-Generic-Laptop-2022-7-26-at-10-50-20-P-M" border="0"></a><br /><a target='_blank' href='https://es.imgbb.com/'>subir mi web gratis</a><br />
+<a href="https://ibb.co/FbdZx4n"><img src="https://i.ibb.co/zht9nVN/Dnlalejandro-Generic-Laptop-2022-7-26-at-10-50-20-P-M.jpg" alt="Dnlalejandro-Generic-Laptop-2022-7-26-at-10-50-20-P-M" border="0"></a>
